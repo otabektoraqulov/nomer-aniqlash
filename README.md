@@ -1,0 +1,2 @@
+# nomer-aniqlash
+uzbekiston
